@@ -1,6 +1,6 @@
 ## Hi there! 👋
 
-_“The best from among you is the one who benefits humanity the most.”_  
+_“The best of people are those who are most beneficial to others.”_  
 — Prophet Muhammad ﷺ
 
 ---
